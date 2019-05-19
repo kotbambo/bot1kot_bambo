@@ -1,1 +1,1 @@
-# bot1kot_bambo
+# Prywatny bot kot_bambo™
